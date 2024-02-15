@@ -105,48 +105,4 @@ Italy – Download (Total Channels – 406)
 Bangladesh – Download (Total Channels – 62)
 Uzbekistan – Download (Total Channels – 22)
 Jordan – Download (Total Channels – 62)
-Animation – Download (Total Channels – 66)
-Central African Republic – Download (Total Channels – 17)
-Free IPTV M3U Playlists
-Movies Channel Lists
-http://bit.ly/Pelis-IPTv
-http://bit.ly/tvypelism3u
-http://bit.ly/Films-FULL
-http://bit.ly/PelixFULL
-http://bit.ly/CIN3FLiX
-http://bit.ly/Pelis-IPTv
-http://bit.ly/TVFilms
-http://bit.ly/tvypelism3u
-http://bit.ly/PELISSM3U
-http://bit.ly/PelisHDAlterna
-http://bit.ly/TVFilms
-Music M3U Playlist
-http://playlist.autoiptv.net/music.php
-http://37.133.25.67:9981/playlist
-http://bit.ly/_TVMEX
-http://xml.autoiptv.net/music.php
-Latin America IPTV Channel lists
-https://bit.ly/2Jc5jcC
-https://bit.ly/2U67yE5
-https://bit.ly/3enqBmy
-http://bit.ly/Lat1N0s
-http://bit.ly/2E9eY3Z
-https://bit.ly/34UEc1q
-https://bit.ly/3kSyTFn
-http://bit.ly/_Latinotv
-https://bit.ly/3jXuz6u
-http://bit.ly/Argentina_tv
-https://bit.ly/35YXfae
-http://bit.ly/ListaFluxs
-http://bit.ly/ListAlterna
-http://bit.ly/2OPhDp9
-https://bit.ly/3297Yh1
-https://bit.ly/3mSAFqw
-https://bit.ly/3jThNGd
-We will allow you to choose any IPTV Playlist from the several lists.
 
-
-
-
-
-close
